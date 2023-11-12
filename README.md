@@ -1,1 +1,2 @@
 # KVKK-GDPR
+zejkmcin
